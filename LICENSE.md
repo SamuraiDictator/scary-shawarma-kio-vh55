@@ -1,4 +1,4 @@
-
+Experience scary shawarma kiosk like never before with scary shawarma kiosk Script exclusive, the #1 Script. Includes teleport and custom skins for
 
 
 
